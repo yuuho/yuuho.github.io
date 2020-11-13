@@ -1,2 +1,0 @@
-# yuuho.github.io
-
